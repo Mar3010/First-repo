@@ -1,2 +1,4 @@
-"Resmål för att slippa den svenska kylan"
+"ResmÃ¥l fÃ¶r att slippa den svenska kylan"
+Spanien
+Thailand
 
