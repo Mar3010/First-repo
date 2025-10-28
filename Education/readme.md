@@ -1,1 +1,2 @@
-"Resm†l f”r att slippa den svenska kylan" 
+"Resmål för att slippa den svenska kylan"
+
